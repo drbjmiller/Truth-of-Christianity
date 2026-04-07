@@ -3,7 +3,7 @@ This folder contains documents on the evidence for the truth of Christianity. Th
 The folder titled _Shroud_ contains documents related to the authenticity of the Shroud of Turin.
 The folder titled _Resurrection_ contains documents related to the evidence for Jesus' resurrection. 
 
-Addition resources on the resurrection are the following:
+Addition resources on the resurrection:
 * Reconstruction of McGrew's arguments: [click here](https://www.scribd.com/document/961715157/Lydia-McGrew-Maximal-Facts-Resurrection-Argument-Academic)
 * Tim McGrew lectures: [click here](https://ichthus77.com/2015/04/30/reliability-of-the-gospels-lecture-series-tim-mcgrew)
 * How the Gospel of Luke and Acts support the resurrection: [click here](https://ratiochristi.co.za/category/authors/jonathan-mclatchie/?utm_source=chatgpt.com)
