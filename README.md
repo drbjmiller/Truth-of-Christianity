@@ -1,7 +1,7 @@
 # Truth-of-Christianity
-This folder contains documents on the evidence for the truth of Christianity. The document titled _Intelligent Design Resources_ includes links and references to resources related to the evidence for design in nature. 
-The folder titled _Shroud_ contains documents related to the authenticity of the Shroud of Turin.
-The folder titled _Resurrection_ contains documents related to the evidence for Jesus' resurrection. 
+This folder contains documents on the evidence for the truth of Christianity. The document _Intelligent Design Resources_ includes links and references to resources related to the evidence for design in nature. 
+The folder _Shroud_ contains documents related to the authenticity of the Shroud of Turin.
+The folder _Resurrection_ contains documents related to the evidence for Jesus' resurrection. 
 
 Addition resources on the resurrection:
 * Reconstruction of McGrew's arguments: [click here](https://www.scribd.com/document/961715157/Lydia-McGrew-Maximal-Facts-Resurrection-Argument-Academic)
