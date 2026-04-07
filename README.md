@@ -8,3 +8,4 @@ Addition resources on the resurrection are the following:
 * Evidence for relability of gospels and Acts - Part I: [click here](https://theocca.org/resources/underappreciated-evidence-1/)
 * Evidence for relability of gospels and Acts - Part II: [click here](https://theocca.org/resources/underappreciated-evidence-2/)
 * Response to claims about significant contradictions in Gospels: [click here](https://crossexamined.org/are-there-colossal-contradictions-in-the-gospels-a-reply-to-rabbi-tovia-singer/)
+Website for Jonathan McLatchie [click here](https://jonathanmclatchie.com/)
