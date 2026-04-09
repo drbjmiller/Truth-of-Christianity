@@ -5,10 +5,10 @@ The folder _Resurrection_ contains documents related to the evidence for Jesus' 
 
 Talks on faith and science:
 * Design in nature at the University of Washington: [click here](https://youtu.be/C5VO737D8kU?si=hShNhr50_VZ9wq6T)
-* Engineering and biology in Dallas: click here
-* Design of Earth for technology in Dallas: [click here](https://youtu.be/oQmolaU95ow?si=m0RapkYBRi_lqSE1))
-* Origin of life in India (Zoom): click here
-* Interview with James Tour on the origin of life: click here
+* Engineering and biology in Dallas: [click here](https://youtu.be/M9i2vFEa6rE?si=XLoiFQyd_4KH6Zbd)
+* Design of Earth for technology in Dallas: [click here](https://youtu.be/oQmolaU95ow?si=m0RapkYBRi_lqSE1)
+* Origin of life in India (Zoom): [click here](https://youtu.be/Z8SCzIO5bsU?si=LAnSkRXU3u-wua_7)
+* Interview with James Tour on the origin of life: [click here](https://youtu.be/RJeUH7IhQHo?si=OAtsnTFS_yIgyofn)
 
 Addition resources on the resurrection:
 * Reconstruction of McGrew's arguments: [click here](https://www.scribd.com/document/961715157/Lydia-McGrew-Maximal-Facts-Resurrection-Argument-Academic)
