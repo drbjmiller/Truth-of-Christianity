@@ -3,6 +3,6 @@ You can access my lecture on the Shroud of Turin I delivered many years ago: <a 
 <br><br>
 Additional Shroud resources:<ul>
 <li>Alan and Mary Whanger, <i>The Shroud of Turin: An Adventure of Discovery</i> (1998)
-<li>Mark Antonacci, <i>Resurrection of the Shroud: New Scientific, Medical, and Archeological Evidence</li> (2000) 
-<li>Ian Wilson, <i>The Shroud: Fresh Light on the 2000 Year Old Mystery</li> (2010)
+<li>Mark Antonacci, <i>Resurrection of the Shroud: New Scientific, Medical, and Archeological Evidence</i> (2000) </li> 
+<li>Ian Wilson, <i>The Shroud: Fresh Light on the 2000 Year Old Mystery</i> (2010)</li>
 </ul>
