@@ -18,4 +18,4 @@ Addition resources on the resurrection:
 * Evidence for relability of gospels and Acts - Part II: [click here](https://theocca.org/resources/underappreciated-evidence-2/)
 * Response to claims about significant contradictions in Gospels: [click here](https://crossexamined.org/are-there-colossal-contradictions-in-the-gospels-a-reply-to-rabbi-tovia-singer/)
 * Website for Jonathan McLatchie: [click here](https://jonathanmclatchie.com/)
-* Observations on the Conversion and Apostleship of Paul: [Click here](https://ia601306.us.archive.org/14/items/observationsonco05lytt/observationsonco05lytt.pdf)
+* _Observations on the Conversion and Apostleship of Paul_: [Click here](https://ia601306.us.archive.org/14/items/observationsonco05lytt/observationsonco05lytt.pdf)
