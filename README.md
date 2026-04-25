@@ -11,7 +11,7 @@ Talks on faith and science:
 * Interview with James Tour on the origin of life: [click here](https://youtu.be/RJeUH7IhQHo?si=OAtsnTFS_yIgyofn)
 
 Addition resources on the resurrection:
-* Recent talk at the University of Washington on the evidence for the resurrection and the reliability of the gospels: [click here](https://www.youtube.com/live/uz4qx6FK9dk?si=uU4zKl1kKOVbYOWP)
+* Presentation at the University of Washington on the evidence for the resurrection and the reliability of the gospels: [click here](https://www.youtube.com/live/uz4qx6FK9dk?si=uU4zKl1kKOVbYOWP)
 * Reconstruction of McGrew's arguments: [click here](https://www.scribd.com/document/961715157/Lydia-McGrew-Maximal-Facts-Resurrection-Argument-Academic)
 * Tim McGrew lectures: [click here](https://ichthus77.com/2015/04/30/reliability-of-the-gospels-lecture-series-tim-mcgrew)
 * How the Gospel of Luke and Acts support the resurrection: [click here](https://ratiochristi.co.za/category/authors/jonathan-mclatchie/?utm_source=chatgpt.com)
